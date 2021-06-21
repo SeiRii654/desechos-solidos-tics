@@ -1,0 +1,1 @@
+# desechos-solidos-tics
